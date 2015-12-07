@@ -1,0 +1,2 @@
+# sostrasaun
+Sõstra Sauna koduleht
